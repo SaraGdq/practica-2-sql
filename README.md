@@ -6,4 +6,4 @@ Hice todas las partes de la practica pero por cuestion de trabajo no me ha dado 
 
 Espero que sea suficiente para el apto. 
 
-Muchas gracas
+Muchas gracias
